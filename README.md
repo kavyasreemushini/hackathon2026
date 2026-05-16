@@ -1,1 +1,1 @@
-# hackathon2026
+[Open Project](https://lnkd.in/gUMHdmkj)
